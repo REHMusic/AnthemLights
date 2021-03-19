@@ -73,4 +73,9 @@
 - We Are Never Getting Back Together
 - Wedding Medley
 - Where The Light Is(+-Medium)
-- 
+- Who I'm Meant to Be
+- Who You Say I Am
+- Wildest Dreams
+- You Raise Me Up
+- You Say
+- You Will Always Be My Son
