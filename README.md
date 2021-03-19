@@ -62,7 +62,6 @@
 - Shake It Off
 - Speechless
 - Stay/Something Just Like This
-- Story of My Life/You and I
 - Stupid Deep
 - Taylor Swift Mash-Up
 - The Greatest Showman Medley
