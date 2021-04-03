@@ -35,6 +35,7 @@
 - Hor Far I'll GO
 - Hunter Hayes Medley
 - In Christ Alone
+- Into the Unknown／Show Yourself（Chad&Fallon）
 - I Really Like You
 - It Ain't Me
 - I Want It That Way
