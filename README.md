@@ -16,6 +16,7 @@
 - Class of 2017
 - Closer Than the Angles
 - Dare You to Move/Meant to Live
+- Dear Evan Hansen Medley(Chad x Joey)
 - Dear Hollywood
 - death bed
 - Demons
